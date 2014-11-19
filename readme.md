@@ -14,6 +14,8 @@ Aellen Jonathan - JonathanAellen
 
 ## B
 
+Baltensperger Oliver - OliBalti
+
 Buchmann Sebastian - bucseb01
 
 Badenberg Ferdinand - ferdinandbadenberg
